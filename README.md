@@ -1,8 +1,9 @@
 <div align="center">
 
 
-  <a href="https://x.com/phoenixwingsx/status/2025420967485603942?s=20"><img src="https://file.garden/aaLTXFYbekwSrT1N/totaleclipse" width="400" height="auto" align="left"></img></a> <br>
-[**send a message**](https://harlequin.atabook.org/)ㅤㅤ[prns.cc](https://pronouns.cc/@lunaris)ㅤㅤ[strwpge](https://lunarisembodiment.straw.page)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
+  <a href="https://x.com/phoenixwingsx/status/2025420967485603942?s=20"><img src="https://file.garden/aaLTXFYbekwSrT1N/totaleclipse" width="450" height="auto" align="left"></img></a> <br>
+[**send a message**](https://harlequin.atabook.org/)ㅤㅤ[prns.cc](https://pronouns.cc/@lunaris) <br>
+[strwpge](https://lunarisembodiment.straw.page)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
 
 ---
 read links before friend reqs <br>
