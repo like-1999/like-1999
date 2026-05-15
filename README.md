@@ -8,7 +8,7 @@
 ---
 read links before friend reqs <br>
 any/mirror prns he they pref <br>
-theres not much for me to say here <br>
+c+h enc always!!! <br>
 ㅤ<img src="https://komarev.com/ghpvc/?username=atervir&label= poems &color=161b1c&style=water">
 <p align="center">
     <img width="300" src="" alt="">
