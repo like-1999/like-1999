@@ -20,5 +20,8 @@ c+h enc always!!! <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=4000&pause=500&color=5e5a6f&multiline=true&repeat=false&width=435&height=250&lines=i+look+for+the+truth+in+the+back+of+your+hand" alt="Typing SVG" /></a>
 
 
+today 5/20/2026 a sunday called me cute and it permanently ruined my life
+
+
 ㅤ
 
