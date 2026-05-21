@@ -3,7 +3,7 @@
 
   <a href="https://x.com/ferylii/status/1873327268191506814/photo/2"><img src="https://file.garden/aaLTXFYbekwSrT1N/Untitled106_20260516180741.png" width="450" height="auto" align="left"></img></a> <br>
 [**send a message**](https://sunaxa.atabook.org/)ㅤㅤ[prns.cc](https://pronouns.cc/@lunaris) <br>
-[strwpge](https://lunarisembodiment.straw.page)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
+[guns.lol](https://guns.lol/seildirectory)
 
 ---
 read links before friend reqs <br>
