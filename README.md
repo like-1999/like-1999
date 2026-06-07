@@ -1,7 +1,7 @@
 <div align="center">
 
 
-  <a href="https://x.com/ferylii/status/1873327268191506814/photo/2"><img src="https://file.garden/aaLTXFYbekwSrT1N/Untitled106_20260516180741.png" width="450" height="auto" align="left"></img></a> <br>
+  <a href="https://file.garden/aaLTXFYbekwSrT1N/HAPPY_MARRIAGE.gif"><img src="https://file.garden/aaLTXFYbekwSrT1N/HAPPY_MARRIAGE.gif" width="450" height="auto" align="left"></img></a> <br>
 [**shoot me a message on my atabook**](https://sunaxa.atabook.org/)<br>
 [guns.lol](https://guns.lol/seildirectory) ㅤㅤ[prns.cc](https://pronouns.cc/@aven) 
 
@@ -19,6 +19,8 @@ c+h enc always!!! <br>
 
  june 4th, 2026.
  amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me I MISS PHAINON amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me amphoreus ruined me 
+
+ missing wife anaxagoras
 
 
 ㅤ
