@@ -1,7 +1,7 @@
 <div align="center">
 
 
-  <a href="https://file.garden/aaLTXFYbekwSrT1N/HAPPY_MARRIAGE.gif"><img src="https://file.garden/aaLTXFYbekwSrT1N/HAPPY_MARRIAGE.gif" width="450" height="auto" align="left"></img></a> <br>
+  <a href="https://file.garden/aaLTXFYbekwSrT1N/HAPPY_MARRIAGE.gif"><img src="https://file.garden/aaLTXFYbekwSrT1N/phainonmugshot.jpeg" width="400" height="auto" align="left"></img></a> <br>
 [**shoot me a message on my atabook**](https://sunaxa.atabook.org/)<br>
 [guns.lol](https://guns.lol/seildirectory) ㅤㅤ[prns.cc](https://pronouns.cc/@aven) 
 
