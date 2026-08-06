@@ -2,13 +2,12 @@
 
 
 
-[**shoot me a message on my atabook**](https://sunaxa.atabook.org/)<br>
+[shoot me a message on ata](https://sunaxa.atabook.org/)<br>
 
 
 
-read links before friend reqs <br>
+c + h ok  &&  iwc always <br>
 any/mirror prns he they pref <br>
-c+h enc always!!! <br>
 
 ㅤ<img src="https://komarev.com/ghpvc/?username=atervir&label= poems &color=161b1c&style=water">
 <p align="center">
