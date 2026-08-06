@@ -3,7 +3,7 @@
 
 
 [**shoot me a message on my atabook**](https://sunaxa.atabook.org/)<br>
-[guns.lol](https://guns.lol/seildirectory) ㅤㅤ[rentry](https://rentry.co/lunaris) 
+
 
 
 read links before friend reqs <br>
