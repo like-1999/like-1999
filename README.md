@@ -5,7 +5,6 @@
 <sub>[shoot me a message on ata!](https://sunaxa.atabook.org/)</sub><br>
 
 <sub> c+h enc  ALWAYS IWC</sub> <br>
-<sub> any/mirror  he/they pref</sub> <br>
 
  
 
