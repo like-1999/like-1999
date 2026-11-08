@@ -5,7 +5,7 @@
 <sub>[shoot me a message on ata!](https://sunaxa.atabook.org/)</sub><br>
 
 <sub> c+h enc  always iwc </sub> <br>
-<sub> public chat always off.w2i </sub> <br>
+<sub> public chat always off. w2i </sub> <br>
 
  
 
